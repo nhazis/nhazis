@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nhazis
+- 👀 I’m interested in design
+- 🌱 I’m currently learning marketing
+- 📫 How to reach me? Just slack me
